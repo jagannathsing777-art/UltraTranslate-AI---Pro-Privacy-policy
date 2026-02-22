@@ -65,4 +65,4 @@ Continued use of the app after updates means acceptance of the revised policy.
 11. Contact Information
 If you have any questions or concerns regarding this Privacy Policy, you may contact us at:
 📧 Email: support@ultratranslate.ai
-🌐 Website: https://ultratranslate.ai�
+🌐 Website: [https://ultratranslate.ai�](https://jagannathsing777-art.github.io/UltraTranslate-AI---Pro-Privacy-policy/)
